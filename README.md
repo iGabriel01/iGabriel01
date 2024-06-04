@@ -1,16 +1,15 @@
-## Hi there 👋
+# Hey there, I'm the better ツ
 
-<!--
-**iGabriel01/iGabriel01** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+꧁ I'm Gabriel. ꧂
+👾 I'm studying JavaScript Language. 👾
+➣ I'm used this channel for my orginazation and sharing of my projects. 📥
 
-Here are some ideas to get you started:
+༺═─────────────────────────────────═༻
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+# Girls can talk to me! ツ
+
+💬 e-mail contact 💬
+00001098265750sp@al.educacao.sp.gov.br
+
+My Intasgram:
+@Bielz_cg
